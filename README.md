@@ -1,1 +1,1 @@
-# akstore.com
+# AK Technology .com
